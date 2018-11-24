@@ -2,4 +2,4 @@
 
 La historia de un hacker excepcional.
 
-**Hector Vazquez**
+**Hector Vazquez** Larry Plotter fan
